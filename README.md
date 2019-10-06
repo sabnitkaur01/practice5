@@ -12,6 +12,6 @@ thor is the best example of thunder god. marvels company did great job to make p
  rfer hvr veruergv r78v rg fvre qr7ggfruebv rvr vv rfv8rh vrehvur vgr gvur gvuerggvrvrvrbv rgvjvbv vrbv  vgrwgvur vrvgrug vgruiw
 
 #### team members
-  sabnit kaur 
-  sonali
+  1. sabnit kaur 
+  2. sonali
 
